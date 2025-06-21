@@ -118,5 +118,6 @@ Stand: 09.06.2025
 
 ## 📬 Kontakt
 
-Erstellt von **Mohaned Khamees**  
-📧 mohanedkhamess@gmail.com
+Erstellt von **Mohaned Khamees**
+         und **Bashar Al Abdalla**
+
